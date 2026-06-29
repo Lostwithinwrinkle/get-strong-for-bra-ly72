@@ -1,4 +1,4 @@
-
+new Scripts for get strong for brainrots is the best get strong for brainrots Script, featuring anti-ban and auto-farm. Safe and powerful for all
 
 
 
